@@ -31,3 +31,6 @@ Dream on Dreamer!                   Cascada
 Hurricane (2009 Radio Edit)         Alex Megane
 Piece of Heaven                     Cascada
 Out Alive                           Ke$ha
+Sk8er Boi                           Avril Lavigne || Cascada
+The End                             Groove Coverage
+}
